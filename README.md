@@ -11,6 +11,10 @@ Good day dear ladies n gentlemen
 </p>
 
 <p align="center">
+<sup><sub>Art cr : lost.</sub></sup>
+</p>
+
+<p align="center">
 ────────────
 </p>
 <p align="center">
